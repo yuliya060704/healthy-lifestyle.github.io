@@ -1,1 +1,1 @@
-# healthy-lifestyle.github.io
+# healthy-lifestyle
